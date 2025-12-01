@@ -4,6 +4,7 @@
 秋夜长，殊未央，月明白露澄清光，层城绮阁遥相望。
 
 Telegram: https://t.me/portal_fuqiuluo
+new Telegram Group: https://t.me/+LnSTirTg4jc5MmY1
 
 ## 项目概述
 
